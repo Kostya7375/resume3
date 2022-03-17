@@ -1,3 +1,3 @@
 # Результат здесь
 
-[Кликни сюда и узнаешь](https://kostya7375.github.io/resume2/)
+[Кликни сюда и узнаешь](https://kostya7375.github.io/resume3/)
